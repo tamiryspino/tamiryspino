@@ -14,4 +14,4 @@ I already have some knowledge in Python 🐍 and I'm always trying to improve it
 
 From Maceió, Alagoas, Brazil 🇧🇷
 
-Living in Sollentuna, Stockholm, Sweden 🇸🇪 
+Living in Stockholm, Sweden 🇸🇪 
